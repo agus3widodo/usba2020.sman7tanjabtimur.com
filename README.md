@@ -1,1 +1,1 @@
-# usba2020.sman7tanjabtimur.com-
+# usba2020.sman7tanjabtimur.com
